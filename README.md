@@ -1,1 +1,0 @@
-# smart_box_kamar_01
